@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ryandood57
+- 👀 I’m interested in ... gaming and btd 6
+- 🌱 I’m currently learning ... how to code games
+- 💞️ I’m looking to collaborate on ... on a btd 6 project
+- 📫 How to reach me ... email ryandood57@gmail.com
